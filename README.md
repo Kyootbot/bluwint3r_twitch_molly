@@ -7,3 +7,5 @@ bluwint3r
 
 mollyclaire
 [![Bluwint3r-twitch-2024-kiss-bed.gif](https://i.postimg.cc/8zjJHRFX/Bluwint3r-twitch-2024-kiss-bed.gif)](https://postimg.cc/LJF84Z3j)
+
+[![Bluwint3r-Molly-Claire-twitch.jpg](https://i.postimg.cc/B6Gj4RmR/Bluwint3r-Molly-Claire-twitch.jpg)](https://postimg.cc/WDXN7YL7)
